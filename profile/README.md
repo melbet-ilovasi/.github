@@ -16,6 +16,8 @@ Melbet Uzbekistan oʻyinchilarga bettingning zamonaviy formatini taklif qiladi: 
 
 Oʻzbekistonda bukmekerlik saytlari domenlariga kirish vaqti-vaqti bilan cheklanishi mumkin, shu sababli oʻyinchilarga koʻpincha **Melbet Oʻzbekiston rasmiy ishlaydigan oynasi** kerak boʻladi. Oyna — bu saytning muqobil manzili boʻlib, asosiy platformaning toʻliq funksiyalarini saqlaydi: roʻyxatdan oʻtish, akkauntga kirish, balansni toʻldirish, mablagʻ yechib olish, sportga stavkalar va kazinoga kirish.
 
+<img src="https://images-seo.net/betimg/177979917033_kiss_198kb.jpg">
+
 Agar asosiy domen vaqtincha ochilmasa, foydalanuvchiga internetdan tasodifiy havolalarni qidirish shart emas. Joriy sahifadan MelBet Uz’ning dolzarb ishlaydigan oynasiga oʻtib, akkaunt maʼlumotlarini yoʻqotmasdan saytdan foydalanishda davom etish mumkin.
 
 ### Melbet Uzbekistan rasmiy oynasining afzalliklari
