@@ -4,9 +4,9 @@
 
 <div align="center">
 
-### 🎰 [ROʻYXATDAN OʻTISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=ru/registration)
+### 🎰 [ROʻYXATDAN OʻTISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=uz/registration)
 
-### 🎁 [WELCOME BONUS 425% →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=ru/bonus/rules/1st)
+### 🎁 [WELCOME BONUS 425% →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=uz/bonus/rules/1st)
 
 </div>
 
@@ -30,7 +30,7 @@ Agar asosiy domen vaqtincha ochilmasa, foydalanuvchiga internetdan tasodifiy hav
 
 <div align="center">
 
-### ⭐ [OYNA →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=ru/registration)
+### ⭐ [OYNA →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=uz/registration)
 
 </div>
 
@@ -47,7 +47,7 @@ Agar asosiy domen vaqtincha ochilmasa, foydalanuvchiga internetdan tasodifiy hav
 
 <div align="center">
 
-### ⭐ [YUKLAB OLISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=ru/mobile)
+### ⭐ [YUKLAB OLISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=uz/mobile)
 
 </div>
 
@@ -76,7 +76,7 @@ Android qurilmalari egalari Melbet Uz ilovasini joriy sahifadagi dolzarb havola 
 
 <div align="center">
 
-### ⭐ [APK YUKLAB OLISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=ru/mobile)
+### ⭐ [APK YUKLAB OLISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=uz/mobile)
 
 </div>
 
@@ -94,7 +94,7 @@ iPhone va iPad foydalanuvchilari ham Melbet Uzbekistan’dan mobil ilova yoki mo
 
 <div align="center">
 
-### ⭐ [IPHONEʼGA YUKLAB OLISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=ru/mobile)
+### ⭐ [IPHONEʼGA YUKLAB OLISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=uz/mobile)
 
 </div>
 
@@ -113,7 +113,7 @@ Platformada roʻyxatdan oʻtishning 4 ta asosiy usuli mavjud:
 
 <div align="center">
 
-### 🎰 [ROʻYXATDAN OʻTISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=ru/registration)
+### 🎰 [ROʻYXATDAN OʻTISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=uz/registration)
 
 </div>
 
@@ -130,7 +130,7 @@ Platformada roʻyxatdan oʻtishning 4 ta asosiy usuli mavjud:
 
 <div align="center">
 
-### 🎰 [KIRISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=ru/registration)
+### 🎰 [KIRISH →](https://refpa3665.com/L?tag=d_5542902m_2170c_&site=5542902&ad=2170&r=uz/registration)
 
 </div>
 
