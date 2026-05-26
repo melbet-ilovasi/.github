@@ -143,6 +143,8 @@ Platformada roʻyxatdan oʻtishning 4 ta asosiy usuli mavjud:
 
 ## Melbet Oʻzbekiston onlayn kazinosi
 
+<img src="https://images-seo.net/betimg/177979924235_kiss_95kb.jpg">
+
 **Melbet Oʻzbekiston onlayn kazino** boʻlimi oʻyinchilarga katta koʻngilochar tanlovni taklif qiladi: oʻyin avtomatlari, karta oʻyinlari, ruletka, live-kazino va tezkor oʻyinlar. Kazino sayt, oyna va mobil ilova orqali mavjud boʻlib, sevimli oʻyinlarni istalgan qulay vaqtda ishga tushirish imkonini beradi.
 
 ### Oʻzbekistondagi oʻyinchilar uchun Melbet kazinosining afzalliklari
